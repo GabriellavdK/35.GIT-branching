@@ -1,7 +1,5 @@
 #STICKY TOFFEE PUDDING  
-###this is a lovely easy take on the classic steamed date pudding. the coconut toffee is delicious it doesnt taste of coconut but adds a wonderful earthy
-sweetness which has its own treacle like flavour that is typical of this cake and compliments the pudding so lovely. Best served warm with your favourite vanilla ice cream
-of choice with lots of the toffee drizzled over the top. Here we bake the pudding which makes the recipes easier but still keeps its typical moistness
+###this is a lovely easy take on the classic steamed date pudding. the coconut toffee is delicious it doesnt taste of coconut but adds a wonderful earthy sweetness which has its own treacle like flavour that is typical of this cake and compliments the pudding so lovely. Best served warm with your favourite vanilla ice cream of choice with lots of the toffee drizzled over the top. Here we bake the pudding which makes the recipes easier but still keeps its typical moistness
 
 INGREDIENTS
 * Pudding
@@ -35,11 +33,8 @@ INSTRUCTIONS
 10. Level out and put in the oven to bake at 180 for 30 mins
 11. While the cake is baking in the oven time to make the coconut toffee
 12. In a large bottomed pot on high heat add the water, lemon juice and coconut sugar and use a whisk to stir continuously to avoid any of the sugar catching to the bottom and burning.
-13. After approx 3-4 mins the sugar should start to dissolve into a smooth caramel.Gently add the coconut cream from the top of the can of coconut.  
-Be careful not to add any of the water from the can of coconut milk just the cream from the top of the can.  
-Continue to heat and stir until it starts to become really bubbly and lovely and smooth. Once smooth turn off the heat and leave to one side to cool and thicken up.
-14. Take the cake out of the oven and leave to cool. Once cool add 1/2 of the toffee on top of the cake to give a glaze and add a lovely sweetness.  
-Keep the remaining ½ of the toffee to serve on top of the ice cream with the pudding
-15. Cut into brownie shaped pieces and serve with dairy free vanilla ice cream with hot toffee poured on top
+13. After approx 3-4 mins the sugar should start to dissolve into a smooth caramel.Gently add the coconut cream from the top of the can of coconut. Be careful not to add any of the water from the can of coconut milk just the cream from the top of the can. Continue to heat and stir until it starts to become really bubbly and lovely and smooth. Once smooth turn off the heat and leave to one side to cool and thicken up.
+14. Take the cake out of the oven and leave to cool. Once cool add 1/2 of the toffee on top of the cake to give a glaze and add a lovely sweetness. Keep the remaining ½ of the toffee to serve on top of the ice cream with the pudding
+15. Cut into brownie shaped pieces and serve with dairy free vanilla ice cream with hot toffee poured on top.
 
-##**enjoy!**
+##**Enjoy!**
